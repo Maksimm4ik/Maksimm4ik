@@ -28,5 +28,5 @@ function test (hjji)
   ```ruby ythhg ```
   
   - - - 
-  
-  ![fuck](https://www.meme-arsenal.com/create/meme/527483)
+
+![motherfucker](https://meme-arsenal.com/create/meme/527483)
